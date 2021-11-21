@@ -11,4 +11,6 @@
 - 🖼 Editor ( Photoshop )
 - 🌗 Wired Creator 
 
-
+# Ways of communication in social networks 
+- Telegram : @roobite140
+- Wired World : https://weirdvillage.neocities.org
